@@ -1,3 +1,1 @@
 # InfoLogica
-
-EDITANDO ONLINE!
